@@ -1,0 +1,1 @@
+# tasc_casio_classpad_guide
